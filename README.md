@@ -4,5 +4,5 @@
 ![alt text](https://64.media.tumblr.com/176659085843f7b3bc988fe57bc065af/8680b92984f7f4a6-82/s400x600/f0e6f74ca3cf2cc78497845b57f81244bba8f216.gifv)
 
 # my pony town skin ㅤ─  ⤺   ִ    
-![alt text](https://imgur.com/gallery/shhhh-lZgHZKU)
+wip !!
 # vody my beloved  𓇼 
